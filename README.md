@@ -1,0 +1,1 @@
+# jurismind-project-resume
